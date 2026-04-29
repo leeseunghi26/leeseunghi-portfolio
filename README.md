@@ -12,7 +12,7 @@
 📧 leeseunghi26@naver.com  
 📞 010-6818-7518  
 🌐 [포트폴리오 웹사이트](https://leeseunghi26.github.io/leeseunghi-portfolio)  
-📄 [Notion 포트폴리오](#)
+📄 [Notion 포트폴리오](https://www.notion.so/31f6e95a436080a3b4dde12ab6f458e0)
 
 ---
 
